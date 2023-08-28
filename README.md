@@ -1,4 +1,4 @@
-## ◇────── DRAGON VPS MANAGER ───────◇
+## ◇────── AMARTEY PROFESSOR VPS MANAGER ───────◇
 
 ㅤ
 <p align="left">
